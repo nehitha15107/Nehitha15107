@@ -1,16 +1,17 @@
-### Hi there 👋
+### Hi👋, I’m Nehitha(네히타)💜
 
-<!--
-**nehitha15107/Nehitha15107** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🙋🏻‍ I am Indian 🙋🏻‍
 
-Here are some ideas to get you started:
+👀I’m interested in CODING making playfull games and useful apps for users.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+👉🏻I've also joined WhiteHat Jr coding platform.
+
+🙂I can make games using Java script and I can design websites using HTML and CSS. I'm also done with JSX and Python.
+
+🎶My favourite K-pop band is 💜 BTS(방탄소년단)!!🎧
+
+⭐I am very Intrested in learning Korean Language⭐
+
+⭐My Dream city is Seoul(서울), Korea(대한민국)⭐
+
+👸🏻To view my website 👉🏻https://pnehitha.whjr.site/👈🏻 for more !!
