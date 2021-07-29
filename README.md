@@ -1,17 +1,17 @@
-### Hi👋, I’m 𝙽𝚎𝚑𝚒𝚝𝚑𝚊(네히타)💜
+### ʜɪ👋, ɪ’ᴍ ɴᴇʜɪᴛʜᴀ (네히타)💜
 
-🙋🏻‍ I am Indian 🙋🏻‍
+🙋🏻‍ ɪ ᴀᴍ ɪɴᴅɪᴀɴ 🙋🏻‍
 
-👀I’m interested in CODING making playfull games and useful apps for users.
+👀ɪ’ᴍ ɪɴᴛᴇʀᴇꜱᴛᴇᴅ ɪɴ ᴄᴏᴅɪɴɢ ᴍᴀᴋɪɴɢ ᴘʟᴀʏꜰᴜʟʟ ɢᴀᴍᴇꜱ ᴀɴᴅ ᴜꜱᴇꜰᴜʟ ᴀᴘᴘꜱ ꜰᴏʀ ᴜꜱᴇʀꜱ.
 
-👉🏻I've also joined WhiteHat Jr coding platform.
+👉🏻ɪ'ᴠᴇ ᴀʟꜱᴏ ᴊᴏɪɴᴇᴅ ᴡʜɪᴛᴇʜᴀᴛ ᴊʀ ᴄᴏᴅɪɴɢ ᴘʟᴀᴛꜰᴏʀᴍ.
 
-🙂I can make games using Java script and I can design websites using HTML and CSS. I'm also done with JSX and Python.
+🙂ɪ ᴄᴀɴ ᴍᴀᴋᴇ ɢᴀᴍᴇꜱ ᴜꜱɪɴɢ ᴊᴀᴠᴀ ꜱᴄʀɪᴘᴛ ᴀɴᴅ ɪ ᴄᴀɴ ᴅᴇꜱɪɢɴ ᴡᴇʙꜱɪᴛᴇꜱ ᴜꜱɪɴɢ ʜᴛᴍʟ ᴀɴᴅ ᴄꜱꜱ. ɪ'ᴍ ᴀʟꜱᴏ ᴅᴏɴᴇ ᴡɪᴛʜ ᴊꜱx ᴀɴᴅ ᴘʏᴛʜᴏɴ.
 
-🎶My favourite K-pop band is 💜 BTS(방탄소년단)!!🎧
+🎶ᴍʏ ꜰᴀᴠᴏᴜʀɪᴛᴇ ᴋ-ᴘᴏᴘ ʙᴀɴᴅ ɪꜱ 💜 ʙᴛꜱ(방탄소년단)!!🎧
 
-⭐I am very Intrested in learning Korean Language⭐
+⭐ɪ ᴀᴍ ᴠᴇʀʏ ɪɴᴛʀᴇꜱᴛᴇᴅ ɪɴ ʟᴇᴀʀɴɪɴɢ ᴋᴏʀᴇᴀɴ ʟᴀɴɢᴜᴀɢᴇ⭐
 
-⭐My Dream city is Seoul(서울), Korea(대한민국)⭐
+⭐ᴍʏ ᴅʀᴇᴀᴍ ᴄɪᴛʏ ɪꜱ ꜱᴇᴏᴜʟ(서울), ᴋᴏʀᴇᴀ(대한민국)⭐
 
-👸🏻To view my website 👉🏻https://pnehitha.whjr.site/👈🏻 for more !!
+👸🏻ᴛᴏ ᴠɪᴇᴡ ᴍʏ ᴡᴇʙꜱɪᴛᴇ 👉🏻ʜᴛᴛᴘꜱ://ᴘɴᴇʜɪᴛʜᴀ.ᴡʜᴊʀ.ꜱɪᴛᴇ/👈🏻 ꜰᴏʀ ᴍᴏʀᴇ !!
