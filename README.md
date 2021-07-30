@@ -1,22 +1,22 @@
 ### 𝐇𝐢👋, 𝐈’𝐦 𝐍𝐞𝐡𝐢𝐭𝐡𝐚 (네히타)💜
 
-🙋🏻‍ 𝐈 𝐚𝐦 𝐈𝐧𝐝𝐢𝐚𝐧 🙋🏻‍
+🙋🏻‍ I am Indian 🙋🏻‍
 
-𝐈’𝐦 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐞𝐝 𝐢𝐧 𝐂𝐎𝐃𝐈𝐍𝐆 𝐦𝐚𝐤𝐢𝐧𝐠 𝐩𝐥𝐚𝐲𝐟𝐮𝐥𝐥 𝐠𝐚𝐦𝐞𝐬 𝐚𝐧𝐝 𝐮𝐬𝐞𝐟𝐮𝐥 𝐚𝐩𝐩𝐬 𝐟𝐨𝐫 𝐮𝐬𝐞𝐫𝐬.
+👩🏻‍💻 I'm interested in coding! Making plafull games and useful apps for users.
 
-👉🏻𝐈'𝐯𝐞 𝐚𝐥𝐬𝐨 𝐣𝐨𝐢𝐧𝐞𝐝 𝐖𝐡𝐢𝐭𝐞𝐇𝐚𝐭 𝐉𝐫 𝐜𝐨𝐝𝐢𝐧𝐠 𝐩𝐥𝐚𝐭𝐟𝐨𝐫𝐦.
+👉🏻I've also joined WhiteHat Jr coding Platform!
 
-🙂𝐈 𝐜𝐚𝐧 𝐦𝐚𝐤𝐞 𝐠𝐚𝐦𝐞𝐬 𝐮𝐬𝐢𝐧𝐠 𝐉𝐚𝐯𝐚 𝐬𝐜𝐫𝐢𝐩𝐭 𝐚𝐧𝐝 𝐈 𝐜𝐚𝐧 𝐝𝐞𝐬𝐢𝐠𝐧 𝐰𝐞𝐛𝐬𝐢𝐭𝐞𝐬 𝐮𝐬𝐢𝐧𝐠 𝐇𝐓𝐌𝐋 𝐚𝐧𝐝 𝐂𝐒𝐒. 𝐈'𝐦 𝐚𝐥𝐬𝐨 𝐝𝐨𝐧𝐞 𝐰𝐢𝐭𝐡 𝐉𝐒𝐗 𝐚𝐧𝐝 𝐏𝐲𝐭𝐡𝐨𝐧.
+🙂I can make games using Javascript and I can design websites using HTML and CSS. I've also learned JSX and PYTHON.
 
-🎶𝐌𝐲 𝐟𝐚𝐯𝐨𝐮𝐫𝐢𝐭𝐞 𝐊-𝐩𝐨𝐩 𝐛𝐚𝐧𝐝 𝐢𝐬 💜𝐁𝐓𝐒(방탄소년단)!!🎧
+🎶My favourite K-pop band is BTS💜(방탄소년단)!!🎧
 
-⭐𝐈 𝐚𝐦 𝐯𝐞𝐫𝐲 𝐈𝐧𝐭𝐫𝐞𝐬𝐭𝐞𝐝 𝐢𝐧 𝐥𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐊𝐨𝐫𝐞𝐚𝐧 𝐋𝐚𝐧𝐠𝐮𝐚𝐠𝐞⭐
+⭐I'm very interested in learning Korean Language⭐
 
-⭐𝐌𝐲 𝐃𝐫𝐞𝐚𝐦 𝐜𝐢𝐭𝐲 𝐢𝐬 𝐒𝐞𝐨𝐮𝐥(서울), 𝐊𝐨𝐫𝐞𝐚(대한민국)⭐
+⭐My dream city is Seoul (서울), Korea (대한민국)⭐
 
-👉𝐀𝐥𝐬𝐨 𝐜𝐡𝐞𝐜𝐤 𝐨𝐮𝐭 𝐦𝐲 𝐀𝐩𝐩𝐬 𝐚𝐧𝐝 𝐆𝐚𝐦𝐞𝐬 𝐢𝐧 𝐖𝐡𝐢𝐭𝐞𝐇𝐚𝐭 𝐉𝐫 𝐂𝐨𝐦𝐮𝐧𝐢𝐭𝐲 𝐩𝐫𝐨𝐟𝐢𝐥𝐞 https://community.whitehatjr.com/profile/419a2a3b-8aa3-436b-9313-8aa91513f645 👈
+👉Also check out my Apps and games in WhiteHat hr community https://community.whitehatjr.com/profile/419a2a3b-8aa3-436b-9313-8aa91513f645👈
 
-👸🏻𝐓𝐨 𝐯𝐢𝐞𝐰 𝐦𝐲 𝐰𝐞𝐛𝐬𝐢𝐭𝐞 👉🏻https://pnehitha.whjr.site/👈🏻 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 !!
+👸🏻View my website for more!👉🏻https://pnehitha.whjr.site
 
 
-
+ 
