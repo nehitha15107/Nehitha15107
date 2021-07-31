@@ -2,11 +2,13 @@
 
 🙋🏻‍ I am Indian 🙋🏻‍
 
-👩🏻‍💻 I'm interested in coding! Making plafull games and useful apps for users.
+👩🏻‍💻 I'm interested in coding! Making playfull games and useful apps for users.
 
 👉🏻I've also joined WhiteHat Jr coding Platform!
 
 🙂I can make games using Javascript and I can design websites using HTML and CSS. I've also learned JSX and PYTHON.
+
+🎶 I Like to listen K-pop 🎶
 
 🎶My favourite K-pop band is BTS💜(방탄소년단)!!🎧
 
