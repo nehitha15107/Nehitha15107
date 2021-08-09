@@ -16,6 +16,10 @@
 
 ⭐My dream city is Seoul (서울), South Korea (대한민국)⭐
 
+🙋🏻‍♀️ I love my friends! My besties are: Mahi, Swara, Pahul, Sree, Aditi, Ananya, Aadya, Marvelle, Giya, Gauri, Yesh, Prachi and Snachi!
+
+👩🏻‍💻 They are all availabe on gitHub, do follow them!!
+
 👉Also check out my Apps and games in WhiteHat hr community https://community.whitehatjr.com/profile/419a2a3b-8aa3-436b-9313-8aa91513f645👈
 
 👸🏻View my website for more!👉🏻https://pnehitha.whjr.site
