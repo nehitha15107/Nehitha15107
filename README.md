@@ -16,7 +16,7 @@
 
 ⭐My dream city is Seoul (서울), South Korea (대한민국)⭐
 
-🙋🏻‍♀️ I love my friends! My besties are: Mahi, Swara, Pahul, Sree, Aditi, Ananya, Aadya, Marvelle, Giya, Gauri, Yesh, Prachi and Snachi!
+🙋🏻‍♀️ I love my friends! My besties are: Mahi, Swara, Pahul, Sree, Aditi, Ananya, Aadya, Marvelle, Giya, Gauri, Yesh, Zuha, Prachi and Snachi!
 
 👩🏻‍💻 They are all availabe on gitHub, do follow them!!
 
