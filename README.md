@@ -12,8 +12,6 @@
 
 🎶My favourite K-pop band is BTS💜(방탄소년단)!!🎧
 
-⭐I'm very interested in learning Korean Language⭐
-
 ⭐My dream city is Seoul (서울), South Korea (대한민국)⭐
 
 👉Also check out my Apps and games in WhiteHat hr community https://community.whitehatjr.com/profile/419a2a3b-8aa3-436b-9313-8aa91513f645👈
